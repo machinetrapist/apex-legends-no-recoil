@@ -4,4 +4,4 @@
 
 # New 2022 No Recoil
 
-# No Recoil Discord: "https://discord.gg/9c2UeQv5zH"
+# No Recoil Discord: "https://discord.gg/PD3sANW8tR"
